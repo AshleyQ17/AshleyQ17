@@ -12,5 +12,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
 -->
-- Pronouns: she/her
+- I go to Lane 🟢🟡
+- I'm from Mexico
+- I have a dog 
 - Fun fact: I don't know how to swim
